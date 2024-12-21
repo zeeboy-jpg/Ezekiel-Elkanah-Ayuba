@@ -1,4 +1,4 @@
-# Optativa-de-GitHub-
+# Ezekiel Elkanah Ayuba
 hey, my name is Ezekiel Elkanah, a foreign student of informatics engineering at the university of matanzas, cuba
 i am 21 years old in my second year 
 you can reach me at eaelkanah@gmail.com 
